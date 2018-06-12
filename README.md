@@ -1,4 +1,4 @@
-# Recruitment-pains-are-for-the-sweet-life
+# Recruitment-pains-are-life
 
 ## 这辈子做招聘的，上辈子都是折翼的天使。----真的很难找到其他的词语来形容从事招聘工作者，尤其是现在的环境。
 
